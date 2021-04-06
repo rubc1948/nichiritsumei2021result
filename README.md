@@ -1,1 +1,0 @@
-# nichiritsumei2021result
